@@ -13,7 +13,7 @@
 
 - ⚡ Fun fact **I've been programming sense 2nd grade* You can see it all on scratch if you want*
 
-You can contact me on Discord, or email me at epicpigguysminecraft@gmail.com (it's my email from elementary school)
+If you follow me, I can reach out to you, you can contact me on Discord (EpicPigGuy), or email me at epicpigguysminecraft@gmail.com (it's my email from elementary school)
 <p align="left">
 </p>
 
